@@ -1,0 +1,1 @@
+# 2022-MAI-ARCHITECTURE-M-Tatarenko
